@@ -5,7 +5,7 @@
 ### J'me présent, je m'appelle Corentin, j'voudrais bien réussir ma vie, en tant que deeev :sparkles:
 
 
-![Line](Line.gif)
+![Line](line.gif)
 
 
 
@@ -21,7 +21,7 @@
     * Les Films/Séries 🎞️
     * Les Gif qui nique les yeux 🚬
 
-![Line](Line.gif)
+![Line](line.gif)
 
 
 
