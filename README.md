@@ -1,5 +1,29 @@
 
-### ![Blob](blob.gif) Hi there 
+# ![Blob](blob.gif) Hi there 
+
+
+### J'me présent, je m'appelle Corentin, j'voudrais bien réussir ma vie, en tant que deeev :sparkles:
+
+
+![Blob](Line.gif)
+
+
+
+* Top 3 de mes motivations :
+    * Etre Riche 💲
+    * Pour l'argent 🤑
+    * La moula 💵
+
+
+
+* Mes Passions :
+    * Les jeux vidéos 🕹️
+    * Les Films/Séries 🎞️
+    * Les Gif qui nique les yeux 🚬
+
+![Blob](Line.gif)
+
+
 
 
 
